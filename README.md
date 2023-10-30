@@ -1,1 +1,1 @@
-# KNUST-LEEDS-Summer-Scool-on-Air-Pollution-and-Prevention-Control
+# KNUST-LEEDS-Summer-School-on-Air-Pollution-and-Prevention-Control
